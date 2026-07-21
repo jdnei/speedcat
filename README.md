@@ -1,4 +1,4 @@
-# speedcat 闪电猫官方地址(2026年6月24日更新)
+# speedcat 闪电猫官方地址(2026年7月21日更新)
 官方入口地址：[speedcat.la](https://webinv04.sc-aff.cc/auth/register?code=ig7GROyH)</br>
 ## 邀请码
 ~邀请码注册所有套餐季付95折，半年9折，年付8折</br>
