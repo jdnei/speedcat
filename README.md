@@ -1,4 +1,4 @@
-# SpeedCat 闪电猫机场官方地址(2026年7月25日更新)
+# SpeedCat 闪电猫机场官方地址(2026年7月26日更新)
 SpeedCat 闪电猫机场官网地址</br>
 官方入口地址：[speedcat.la](https://webinv04.sc-aff.cc/auth/register?code=ig7GROyH)</br>
 ## 邀请码
