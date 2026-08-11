@@ -1,6 +1,14 @@
 # SpeedCat 闪电猫机场官方地址(2026年8月11日更新)
 SpeedCat 闪电猫机场官网地址</br>
-官方入口地址：[speedcat.la](https://webinv04.sc-aff.cc/auth/register?code=ig7GROyH)</br>
+最新地址：[speedcat.la](https://to.iix.im/sc01)</br>
+官方地址：[speedcat.la](https://to.iix.im/sc01)</br>
+
+2026最新好用的机场推荐与节点分享：[https://github.com/jdnei/JiChangTuiJian](https://github.com/jdnei/JiChangTuiJian)</br>
+## Telegram VPN 机场福利社 #AD
+[机场抽奖群](https://331024.de/archives/choujiang)｜[机场聊天群](https://331024.de/archives/choujiang)｜[机场体验群](https://331024.de/archives/choujiang)</br>
+
+[https://331024.de/archives/choujiang](https://331024.de/archives/choujiang)
+
 ## 邀请码
 ~邀请码注册所有套餐季付95折，半年9折，年付8折</br>
 ```bash
