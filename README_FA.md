@@ -1,5 +1,5 @@
  🇨🇳 [中文](README.md) | 🇺🇸 [English](README_EN.md) | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 فارسی
-# آدرس رسمی VPN اسپیدکت (SpeedCat) -(به‌روزرسانی 5 نوامبر 2026)
+# آدرس رسمی VPN اسپیدکت (SpeedCat) -(به‌روزرسانی 6 نوامبر 2026)
 وب‌سایت رسمی VPN اسپیدکت (SpeedCat)<br>
 ✅ فقط دارای اپلیکیشن اختصاصی<br>
 جدیدترین آدرس: [speedcat.la](https://to.iix.im/sc01)<br>
