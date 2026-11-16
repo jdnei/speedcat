@@ -3,7 +3,8 @@
 
 # SpeedCat 闪电猫机场官方地址(2026年11月15日更新)
 SpeedCat 闪电猫机场官网地址</br>
-✅只有客户端
+✅只支持客户端</br>
+
 最新地址：[speedcat.la](https://to.iix.im/sc01)</br>
 官方地址：[speedcat.la](https://to.iix.im/sc01)</br>
 
