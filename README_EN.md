@@ -1,6 +1,6 @@
 🇨🇳 [中文](README.md) | 🇺🇸 English | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
-# SpeedCat VPN Official Website (Updated November 17, 2026)
+# SpeedCat VPN Official Website (Updated November 18, 2026)
 
 SpeedCat VPN Official Website<br>
 ✅ Dedicated Client App Only<br>
